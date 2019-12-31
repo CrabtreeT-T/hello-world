@@ -1,3 +1,13 @@
 # hello-world
-lets hope buttons clicky
-That means, as I selected some options for my repo - poor old firefox didn't register the images! But.. it did outline the object xD
+
+Sure is a nice day outside...
+
+//I like it in here!
+
+Just wait...
+
+//You've got too many apples, and they're all waxy!
+
+Waffle!
+
+//Peanut BBQ!
